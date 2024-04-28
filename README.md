@@ -8,3 +8,5 @@ https://github.com/YoungGun-star/Mid-Term-Project/assets/63692085/6879a50e-a907-
 
 
 https://github.com/YoungGun-star/Mid-Term-Project/assets/63692085/1d5c60fb-0455-4566-8d38-7c7595f75d96
+
+![스크린샷 2024-04-28 225451](https://github.com/YoungGun-star/Mid-Term-Project/assets/63692085/d97c6ed4-c528-47fc-a6c2-ec0485495bbd)
